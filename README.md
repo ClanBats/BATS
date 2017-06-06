@@ -1,11 +1,11 @@
-                                            [BaTs] معلومات عن كلان 
+                                           * [BaTs] معلومات عن كلان *
                     
                     
 Ps4  كلان عربي مخصص لاصحاب 
 
 يشمل جميع الالعاب وليس مختص بلعبه معينه 
 
-                                                     القوانين.
+                                                    * القوانين *
 
 1-عدم التجاوز على اي شخص ومهما كان السبب
 
@@ -21,7 +21,7 @@ Ps4  كلان عربي مخصص لاصحاب
 
 تمنياتنا لكم باسعد الاوقات 
 
-                                                     اللتواصل.
+                                                    * اللتواصل *
 
 https://www.facebook.com/Clan.BATS/
 https://www.facebook.com/groups/196609837403771/members/
@@ -29,7 +29,7 @@ https://www.youtube.com/channel/UCI98eH5VTMLpTykM-LFPuOw
 http://battlelog.battlefield.com/bf4/platoons/view/242595990315512498/
 
 
-                                              [BaTs] معلومات عن اعظاء كلان 
+                                             * [BaTs] معلومات عن اعظاء كلان *
 
 Naem : Abdalrhman Najah ID : KmnDar505 [Editor] 
 Link Battlelog : 
@@ -141,5 +141,5 @@ Naem : ahmed ali ID : ahmedali346866
 
 Link Battlelog :http://battlelog.battlefield.com/bf4/user/A7medalicr7/
 
-                                                     اخر تحديث للمعلومات
-                                                         2017 / 6/ 5
+                                                    * اخر تحديث للمعلومات *
+                                                       2017 / 6/ 5
